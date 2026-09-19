@@ -19,7 +19,7 @@ INTRODUCTION! INTRODUCTION! ༼     🌀
 
                     
                                 byi !
-                  im usually very "shy" to interact with others so youll just see me           with my friends. rarely with strangers , idm strangers tho sometimes strangers are cool, and sometimes not 🤔
+         im usually very "shy" to interact with others so youll just see me           with my friends. rarely with strangers 
                        
                                        💢
              
@@ -27,3 +27,6 @@ INTRODUCTION! INTRODUCTION! ༼     🌀
 
                                      basic dni evil ppl 
                vanish evil.,,,  📍
+
+
+ still a wip btw go slime choko for NOT finishing this 😭
