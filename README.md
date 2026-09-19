@@ -28,6 +28,6 @@ INTRODUCTION! INTRODUCTION! ༼     🌀
 
                                      basic dni evil ppl 
                vanish evil.,,,  📍
-<img width="736" height="981" alt="29359fb7827cc37b9e775eb22c64b571" src="https://github.com/user-attachments/assets/a11d7bc3-3755-4bde-b97b-5994f8558a35" />
+
 
  
