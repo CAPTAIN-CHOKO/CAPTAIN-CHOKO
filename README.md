@@ -21,15 +21,22 @@ INTRODUCTION! INTRODUCTION! ༼     🌀
 
                     
                                 byi !
-         im usually very "shy" to interact with others so youll just see me           with my friends. rarely with strangers 
+      i am a very very shy and on guard person when it comes to meeting new people. i usually dont bite back. but i will if you are mean to me or to any of my friends. 
+      
+      
+      keep in mind i don't like it when people force ships on me . such as megastar or overmax. so please do not come up to me and sit near me if thats what you are looking out with a person with ponies like mine.  ill let ships slide with my friends as long as they are not darkship or proship.
+
+    
                        
                                        💢
              
-                                  dni 
+                                  dni   , copycats . pony stealers.. 
+                                  taking inspiration without permission! ರ⁠_⁠ರ
 
                                      basic dni evil ppl 
-               vanish evil.,,,  📍
+               vanish evil.,,,  📍.  
 
 
  
 <img width="720" height="426" alt="ce252203d7eb84d9d856df75dfe811f2" src="https://github.com/user-attachments/assets/6dd42a13-fc92-400f-8c4d-375905f68fe1" />
+still a wip go choke choko for not finishing this 😂😂😂✌️ 
