@@ -35,7 +35,7 @@ INTRODUCTION! INTRODUCTION! ༼     🌀
   7 - cookie run Kingdom and ovenbreak . cr crumble. too.
                           multi fandom. ｡⁠◕⁠‿⁠◕⁠｡
              
-                    
+  ![](https://komarev.com/ghpvc/?username=CAPTAIN-CHOKO&style=for-the-badge&label=Pirates&color=c7102c)
   byi ! 🌕
 
   
