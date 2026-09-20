@@ -37,7 +37,7 @@ INTRODUCTION! INTRODUCTION! ༼     🌀
       
       keep in mind i don't like it when people force ships on me . such as megastar or overmax. so please do not come up to me and sit near me if thats what you are looking out with a person with ponies like mine.  ill let ships slide with my friends as long as they are not darkship or proship.
 
-    ![](https://komarev.com/ghpvc/?username=CAPTAIN-CHOKO&style=for-the-badge&label=Pirates&color=c7102c)
+    
                        
                                        💢
              
