@@ -1,10 +1,12 @@
 <img width="736" height="981" alt="29359fb7827cc37b9e775eb22c64b571" src="https://github.com/user-attachments/assets/9c3b807a-b412-47e5-99aa-117fa36860f3" />
 
   art by @perhapsdrunk on pin / tt go support them i adore their work 😂
+
+
+
                       
                       
 INTRODUCTION! INTRODUCTION! ༼     🌀
-
 
   NAMES.     :      CHOKO | XTER | CAPTAIN   📌
    nicknames are allowed as long as they are not
@@ -19,16 +21,24 @@ INTRODUCTION! INTRODUCTION! ༼     🌀
    fandoms im in !!!! 🎯
                    
   1 - transformers .
-          2 - metalcardbots .
-                 3 - brave police j - decker.
-                     4 - goldran the brave of gold.
-                     5 - bang bang brave. bravern.
-                     6 - slendytubbies.  
-                     7 - cookie run Kingdom and ovenbreak . cr crumble. too.
+  
+  2 - metalcardbots .
+  
+   3 - brave police j - decker.
+                   
+  4 - goldran the brave of gold.
+  
+  5 - bang bang brave. bravern.
+  
+  6 - slendytubbies.  
+  
+  7 - cookie run Kingdom and ovenbreak . cr crumble. too.
                           multi fandom. ｡⁠◕⁠‿⁠◕⁠｡
              
                     
   byi ! 🌕
+
+  
   i am a very very shy and on guard person when it comes to meeting new people. i usually dont bite back. but i will if you are mean to me or to any of my friends. 
       
       
@@ -37,7 +47,9 @@ INTRODUCTION! INTRODUCTION! ༼     🌀
     
                         💢
              
- dni   , copycats . pony stealers.. 
+ dni  
+ 
+ , copycats . pony stealers.. 
                                   taking inspiration without permission! ರ⁠_⁠ರ
     basic dni criteria
    📍.  
