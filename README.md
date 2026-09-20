@@ -19,6 +19,17 @@ INTRODUCTION! INTRODUCTION! ༼     🌀
 
                 ＼    hobbies : art and writing.
 
+             fandoms im in !!!! 🎯
+                   
+                     1 - transformers .
+                     2 - metalcardbots .
+                     3 - brave police j - decker.
+                     4 - goldran the brave of gold.
+                     5 - bang bang brave. bravern.
+                     6 - slendytubbies.
+                     7 - cookie run Kingdom and ovenbreak . cr crumble. too.
+                          multi fandom. ｡⁠◕⁠‿⁠◕⁠｡
+             
                     
                                 byi !
       i am a very very shy and on guard person when it comes to meeting new people. i usually dont bite back. but i will if you are mean to me or to any of my friends. 
