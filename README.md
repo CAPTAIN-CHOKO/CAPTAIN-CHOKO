@@ -53,7 +53,7 @@ INTRODUCTION! INTRODUCTION! ༼     🌀
    keep in mind i don't like it when people force ships on me . such as megastar or overmax. so please do not come up to me and sit near me if thats what you are looking out with a person with ponies like mine.  ill let ships slide with my friends as long as they are not darkship or proship.
 
     
-            🥹          honourable crewmates first letter mention yo   : m . k. f. c. d. n . ily guys you so cool dont end up eaten by the kraken 
+            🥹          honourable crewmates mention yo   : clovercoils , monty , kos , koxar , fingernail , n the list goes on!! . ily guys you so cool dont end up eaten by the kraken ok? ok!
              
  dni  
  
