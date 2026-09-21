@@ -9,9 +9,13 @@
 INTRODUCTION! INTRODUCTION! ༼     🌀
 
   NAMES.     :      CHOKO | XTER | CAPTAIN   📌
+
+  
    nicknames are allowed as long as they are not
                          offensive.
-     🫧   pron     :    he / him or they / them .
+
+                         
+ 🫧   pron     :    he / him or they / them .
 
 
   age : ask ╯ 
