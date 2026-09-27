@@ -4,6 +4,7 @@
 
 
 
+
                       
                       
 INTRODUCTION! INTRODUCTION! ༼     🌀
@@ -43,6 +44,7 @@ INTRODUCTION! INTRODUCTION! ༼     🌀
   ![](https://komarev.com/ghpvc/?username=CAPTAIN-CHOKO&style=for-the-badge&label=Pirates&color=c7102c)
 
 
+
   
   byi ! 🌕
 
@@ -58,8 +60,13 @@ INTRODUCTION! INTRODUCTION! ༼     🌀
  dni  
  
  , copycats . pony stealers.. 
-                                  taking inspiration without permission! ರ⁠_⁠ರ
-    basic dni criteria
+ 
+  
+   taking inspiration without permission! ರ⁠_⁠ರ
+
+   
+  basic dni criteria
+  
    📍.  
 
 
